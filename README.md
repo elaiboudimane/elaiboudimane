@@ -1,4 +1,4 @@
-### Hi there 👋
+# Hi there 👋
 ## 🚀 About Me
 🎓 I am IMANE EL AIBOUD, a computer science engineering student.
 👨‍💻 I am passionate about IT and programming. I like to contribute to projects and learn new things. I am really excited to learn new technologies.
