@@ -9,5 +9,5 @@
 ✈️ I love traveling as well, I love discovering new places, meeting new people, and learning about new cultures.
 ## 🔗 Links
 ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡
-www.linkedin.com/in/imane-el-aiboud-051921205
+www.linkedin.com/in/imane-el-aiboud
 ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡ ⚡
